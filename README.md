@@ -9,8 +9,8 @@ Monaco, officially Principality of Monaco, sovereign principality located along 
 
 Check List to visit Monaco.
 
-*Map of the city.
-*Camera.
-*watter Bolttle.
-*F1 race tickets (It's the best time to visit Monaco).
-*Multy Currency Travel Card.
+* Map of the city.
+* Camera.
+* watter Bolttle.
+* F1 race tickets (It's the best time to visit Monaco).
+* Multy Currency Travel Card.
