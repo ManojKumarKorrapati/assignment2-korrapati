@@ -8,6 +8,7 @@ Monaco, officially Principality of Monaco, sovereign principality located along 
 2. Take a flight to Monaco International Airport.
 
 Check List to visit Monaco.
+
 *Map of the city.
 *Camera.
 *watter Bolttle.
