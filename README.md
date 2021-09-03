@@ -27,3 +27,11 @@ Below are the few Food item I would recommend every one to try in India.
 | Shavarma | DLF Gachibouli, Hyderabad, India | 1.45$ | 
 | Mandi | Moosapet, Hyderabad, India | 4.00$|
 | PaniPuri | EveryStreet Courner in India :) | 0.14$ | 
+
+***
+
+##### My two Famous Quotes
+
+> I have no special talent. I am only passioately curious. ---- *Albert Einstein*
+>
+> To suceceed in life, you need two things: ignorance and confidencez. ---- *Mark Twain*
