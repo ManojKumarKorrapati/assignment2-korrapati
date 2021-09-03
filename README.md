@@ -18,3 +18,12 @@ Check List to visit Monaco.
 * Multy Currency Travel Card.
 
 **[To know more about me](AboutMe.md)**
+
+***
+
+Below are the few Food item I would recommend every one to try in India.
+| Food | Location | Price |
+| :--- | :--- | :--- |
+| Shavarma | DLF Gachibouli, Hyderabad, India | 1.45$ | 
+| Mandi | Moosapet, Hyderabad, India | 4.00$|
+| PaniPuri | EveryStreet Courner in India :) | 0.14$ | 
